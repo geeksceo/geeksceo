@@ -1,4 +1,4 @@
-Hi 👋🏽 My name is Nataniel OWAGOKE aka geeksceo ~ supercomputing
+Hi 👋🏽 My name is Nata. aka geeksceo ~ supercomputing
 ====================================
 
 ### Badges
