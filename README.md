@@ -1,4 +1,4 @@
-Hi 👋🏽 My name is Nata. aka geeksceo ~ supercomputing
+I'm CEO, Bitch.
 ====================================
 
 ### Badges
